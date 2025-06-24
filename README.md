@@ -41,7 +41,7 @@
 📫 **Contact Me**
 
 - 📧 Email: **sminahilfatima@gmail.com**  
-- 💼 LinkedIn: [linkedin.com/in/minahilf](https://www.linkedin.com/in/minahilf)
+- 💼 LinkedIn: [https://www.linkedin.com/in/minahil-fatima-80414a2b9/)
 
 ---
 
